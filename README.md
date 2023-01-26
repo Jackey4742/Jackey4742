@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new languages
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on python projects
-- 📫 How to reach me user id👆(insta) or whatsapp me👉7462865875
+- 📫 Reach me via (instagram: https://www.instagram.com/jackey4742 ) or (Linkdin : https://www.linkedin.com/in/kriti-azad-7b9b57206) 
 
 <!---
 Jackey4742/Jackey4742 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
